@@ -1,3 +1,4 @@
+M'y trainer is LMNx9 Limon vaiya
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=bitul404&label=Profile%20views&color=eb4d3d&style=flat-square" alt="𝙲𝚈𝙱𝙴𝚁 𝚁𝙰𝙱𝙱𝙸" /> </p>
 </i></b></h3>
 <h3 align="center">
