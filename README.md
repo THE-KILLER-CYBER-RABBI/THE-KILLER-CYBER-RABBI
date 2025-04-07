@@ -44,7 +44,7 @@ M'y trainer is LMNx9 Limon vaiya
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 👬 𝙵𝚁𝙸𝙴𝙽𝙳𝚂 :- 𝚁𝙸𝚂𝙰𝚃 𝙰𝙽𝙳 𝚃𝙾𝚄𝙵𝙸𝚀
+- 👬 𝙵𝚁𝙸𝙴𝙽𝙳𝚂 :- 𝙽𝚄𝚂𝚁𝙰𝚃 & ＬＭＮｘ９ vi
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
 - ☞︎︎︎ 𝙸𝙽𝚂𝙻𝙸𝚁𝙰𝚃𝙸𝙾𝙽 :- 𝙼𝚈𝚂𝙴𝙻𝙵
